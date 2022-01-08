@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @UHYGA
+- 👋 Hi, I’m @UHYGA FOLLOW MUHAMMAD SAL LAL LAHU ALAI HI WA SALLAM
 - 👀 I’m interested to gain knowledge from all faiths of every religion
 - 🌱 I’m currently learning Masters in Islamic
 - 💞️ I’m looking to collaborate on religions
